@@ -1,6 +1,6 @@
 # 小蜜蜂机场官网地址
 
-最新地址：[xmfvpn.info](https://www.xmifeng.site/auth/register?code=i3t4)
+最新地址：[xmfvpn.info](https://xmf-vip.github.io/xmf-vpn-vip/invite_code.html?invite_code=i3t4)
 
 ## 小蜜蜂介绍
 
